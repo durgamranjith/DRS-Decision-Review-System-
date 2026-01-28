@@ -25,4 +25,4 @@ The DRS allows users to review and challenge on-field decisions made by the umpi
 
 ## Contact
 
-If you have any questions or suggestions regarding this project, please feel free to contact Email - PranjalMishraContact@gmail.com. 
+If you have any questions or suggestions regarding this project, please feel free to contact Email - dranjith1729@gmail.com 
